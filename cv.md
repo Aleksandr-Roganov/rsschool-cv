@@ -18,4 +18,4 @@
 - Now empty, but i'm sure so here will be somthing interesting soon :)
 
 7.   Work experiense:
-- Apply on RSSchool course.
+- Training on the  RSschool. 
